@@ -1,4 +1,4 @@
-### Hi there,I'm Ranjita Padhi
+### Hi there,I'm Ranjita.
 
 
 
